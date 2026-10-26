@@ -1,5 +1,5 @@
 # 💫 About Me:
-## Olá, pessoal 👋<br><br>- 🔭 Trabalhando em projetos escolares no IFPR<br>- 🌱 Aprendendo desenvolvimento de sistemas<br>- 👯 Estagiária no Itaipu Parquetec - Gestão Energética<br>- 📫 Como entrar em contato comigo: marialuizat.ifpr2024@gmail.com<br>- 😄 Pronomes: ela/dela
+## Olá, pessoal 👋<br><br>- 🔭 Trabalhando em projetos escolares no IFPR<br>- 🌱 Aprendendo desenvolvimento de sistemas<br>- 📫 Como entrar em contato comigo: marialuizat.ifpr2024@gmail.com<br>- 😄 Pronomes: ela/dela
 
 
 ## 🌐 Socials:
